@@ -1,7 +1,7 @@
 -  Greetings, I’m @Aelita05 ヾ(≧▽≦*)o
 -  I’m interested in anime, and games that contain fantasy, making decisions and anything unnatural.
 -  I’m currently learning to code and create games with Unity !
--  You can reach me by Discord (ᴀᴇʟ#2374) Bye-Bye!!
+-  You can reach me by Discord (AEL#2374) Bye-Bye!!
 
 <!---
 Aelita05/Aelita05 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
