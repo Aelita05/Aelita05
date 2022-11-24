@@ -1,5 +1,5 @@
 -  Greetings, I’m @Aelita05 ヾ(≧▽≦*)o
--  I’m interested in anime, and games that contain fantasy, making decisions and anything unnatural.
+-  I’m interested in games that contain fantasy, making decisions and anything unnatural.
 -  I’m currently learning to code and create games with Unity !
 -  You can reach me by Discord (AEL#2374) Bye-Bye!!
 
